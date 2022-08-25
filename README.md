@@ -9,3 +9,11 @@
   </a>
   </div>
 </div>
+
+
+About Me:
+
+I'm Rashmi Perera 😊👓
+Currently following a ICT degree🎓
+And I love to working with Data....💹 🔤
+
