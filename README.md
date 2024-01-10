@@ -18,7 +18,9 @@
 
 I'm Rashmi Perera 😊👓
 
-Currently following a ICT degree at Rajarata University of Sri Lanka🎓
+Associate Business Analyst 💼
+
+BICT(HONS) at Rajarata University of Sri Lanka🎓
 
 I'm really fascinated about working with People and Data,I like managing and analysis things...💹 🔤 💻
 
