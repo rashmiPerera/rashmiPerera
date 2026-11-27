@@ -20,12 +20,5 @@ I'm Rashmi Perera 😊👓
 
 Associate Business Analyst 💼
 
-BICT(HONS) at Rajarata University of Sri Lanka🎓
-
-I'm really fascinated about working with People and Data,I like managing and analysis things...💹 🔤 💻
-
-And I'm always trying to grow and learn something new..🤓
-“For the things we have to learn before we can do them, we learn by doing them.”
-― Aristotle ―
 
 ### 
